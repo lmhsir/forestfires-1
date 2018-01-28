@@ -1,4 +1,4 @@
-# What the fuck influences forestfires?
+# What influences forestfires?
 1. Title: Forest Fires
 
 2. Sources
